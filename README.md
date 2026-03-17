@@ -16,12 +16,14 @@
  
    
    `    she/her ; · they/them  ㅤ࣭ ㅤׂ  !!    6teen yo , if u dont want to int w' me. So just ignore me !!! ( I respect your decision ) .
-   
+
+   Im fine w' any ship, u respect me and I will respect u too !! 
+  
 
 ; ⋅    mostly afk/offtab, c + h freely! ; w2i ^_^ 
   
   
-
+   ୨ৎ ⠀   ୨ৎ ⠀   ୨ৎ ⠀  -
  
 ![Image](https://github.com/user-attachments/assets/6687bad2-529e-43cc-bfb1-a132abf62931)
 
