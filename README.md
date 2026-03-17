@@ -1,4 +1,4 @@
-   mostly afk/offtab, c + h freely an' w2i 
+   mostly afk/offtab, c+h freely
   
   
 
