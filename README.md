@@ -1,4 +1,5 @@
 ──────୨ৎ────────୨ৎ────────୨ৎ─‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿─୨ৎ─────୨ৎ────────୨ৎ──────
+
 · · ─ ·> welcome folks!
 
 
@@ -14,3 +15,6 @@
 
 
 @ — shadowmilkcookieholic!!! >_< 
+
+
+![Image](https://github.com/user-attachments/assets/be3b2b58-af69-4284-8306-0919a948cc93)
