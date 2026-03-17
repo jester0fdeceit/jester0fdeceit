@@ -10,8 +10,6 @@
   ˎˊ˗  — SMCHOLIC!!!
 
 
-.・。.・゜✭・.・✫・゜・。..・。.・゜✭・.・✫・゜・。..・。.・゜✭・.・✫・゜・。..・。.・゜✭.・。.・
-
 
 ![Image](https://github.com/user-attachments/assets/be3b2b58-af69-4284-8306-0919a948cc93)
 
