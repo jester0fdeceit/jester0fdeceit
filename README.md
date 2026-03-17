@@ -1,9 +1,9 @@
 ──────୨ৎ────────୨ৎ────────୨ৎ─‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿‿─୨ৎ─────୨ৎ────────୨ৎ──────
-
-
 · · ─ ·> welcome folks!
+
+
  ⊹　 ︶︶　 ୨୧　 ︶︶　 ⊹
-                ८    (akn/fanta/ely)  !!   ꔫა 
+                ८    call me -> akn/fanta/ely or whatever u want ^v^ !!   ꔫა 
                    ﹟    she/her  · they/them  ㅤ࣭ ㅤׂ  !!    
 
 ⠀⠀⠀ ࣪⠀⠀𓏵⠀⠀ ׅ　 txt ⠀⠀ྀི
