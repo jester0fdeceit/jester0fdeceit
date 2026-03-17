@@ -11,6 +11,8 @@
 `               ✧˚.
 
  ⊹　 ︶︶　 ୨୧　 ︶︶　 ⊹
+
+  ୭ ˚.⁺   — SMCHOLIC!!!
               
  ८    call me -> akn/fanta/ely or whatever u want ^v^ !!   ꔫა .          
  
