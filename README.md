@@ -15,7 +15,7 @@
  ८    call me -> akn/fanta/ely or whatever u want ^v^ !!   ꔫა .          
  
    
-   `    she/her ; · they/them  ㅤ࣭ ㅤׂ  !!    6teen , 
+   `    she/her ; · they/them  ㅤ࣭ ㅤׂ  !!    6teen yo , if u dont want to int w' me just ignore me !!! ( I respect your decision ) .
    
 
 ౨ৎ‧₊˚ ⋅    mostly afk/offtab, c + h freely! ; w2i ^_^ 
