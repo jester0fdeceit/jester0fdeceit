@@ -1,4 +1,7 @@
-^_^
+˗ˏˋ ★ ˎˊ˗ welcome!, call me akn/fanta/ely or whatever u want ^_^
+
+
 　. 　 ˚　.　　 *　　. 　 ˚　.　˚　　. 　 　.　　. 　 　.　.　*　　. 　 ˚　.　　.　　. 　 ˚　.　　. 　 ˚　　　* 　　.　. 　 ˚　.　　* 　　.　*　. 　 ˚
-                                        ˗ˏˋ ★ ˎˊ˗
+
+      
 ![Image](https://github.com/user-attachments/assets/a4de605b-5a64-4bb0-830b-854011888116)
