@@ -1,16 +1,3 @@
    mostly afk/offtab, c+h freely
-  ; feel free when int w' meee 
-  
 
- 
-![Image](https://github.com/user-attachments/assets/6687bad2-529e-43cc-bfb1-a132abf62931)
-
-
- — 
-
-
-
-![Image](https://github.com/user-attachments/assets/be3b2b58-af69-4284-8306-0919a948cc93)
-
-
-﹒　⟢　﹒　⟢　﹒　⟢　﹒　⟢　﹒　⟢　﹒　⟢　﹒　⟢　﹒　⟢　﹒　⟢　
+<img width="735" height="600" alt="Image" src="https://github.com/user-attachments/assets/954a73d2-0145-4cff-88e9-96c6314e95a2" />
