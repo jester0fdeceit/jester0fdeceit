@@ -1,3 +1,4 @@
 ![](https://komarev.com/ghpvc/?username=jester0fdeceit)
 ◟
-<img width="736" height="932" alt="Image" src="https://github.com/user-attachments/assets/ab464281-1c5f-47cf-a22c-0fa296647c79" />
+<img width="735" height="585" alt="Image" src="https://github.com/user-attachments/assets/75cccc56-7016-4a16-99e4-8f6719371f14" />
+
